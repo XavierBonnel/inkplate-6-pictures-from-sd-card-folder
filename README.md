@@ -1,0 +1,1 @@
+# inkplate-6-pictures-from-sd-card-folder
